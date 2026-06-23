@@ -1,1 +1,1 @@
-[https://libra-signs-speak.lovable.app
+https://libra-signs-speak.lovable.app
